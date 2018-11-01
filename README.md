@@ -1,1 +1,0 @@
-# the-wowowow-awards
